@@ -1,10 +1,10 @@
 ## Introduction
 
-### What to do?
+## What to do?
 
 ## Awareness
 ## Self-discipline
-## Breaking bad habits
+### Breaking bad habits
 
 ### Support or Contact
 
